@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that deliver value to the end user (the people). 
 - 📫 How to reach me +1 404.394.1669
 - 😄 Pronouns: Sir
-- ⚡ Fun fact: Domino's and French Onion Dip go together 
+- ⚡ Fun fact: Dorito's and French Onion Dip go together 
 
 <!---
 feltonlewis4/feltonlewis4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
