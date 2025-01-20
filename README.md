@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @feltonlewis4
-- 👀 I’m interested in being am efficient consumer of time
+- 👀 I’m interested in being an efficient consumer of time
 - 🌱 I’m currently learning to keep up with PW
 - 💞️ I’m looking to collaborate on projects that deliver value to the end user (the people). 
 - 📫 How to reach me +1 404.394.1669
